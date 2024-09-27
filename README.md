@@ -1,4 +1,4 @@
-## Óla me chamo _Anthony França da Silva_ 🦋🌙
+)## Óla me chamo _Anthony França da Silva_ 🦋🌙
 
 
 -Sou estudante 🖤⭐
@@ -7,10 +7,6 @@
 ## Entre em contato comigo 📫
 vitoria.franca.silva26@escola.pr.gov.br
 
-
-
 ## Instagram__ _@Anthonyrxk._
-
-
 
 ![](https://tenor.com/pt-BR/view/alucard-castlevania-gif-18998830)

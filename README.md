@@ -5,7 +5,7 @@
 -Estou estudando no [Alura](https://www.alura.com.br)
 
 ## Entre em contato comigo 📫
-vitória.franca.silva26@escola.pr.gov.br
+vitoria.franca.silva26@escola.pr.gov.br
 
 
 ## Instagram__ _@Anthonyrxk._
